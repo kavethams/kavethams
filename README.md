@@ -3,6 +3,6 @@
 
 ⛔ ➜ afk !! 
 
-I AM 20 YEARS OLD I KNOW IM OLD
+20 , under 17 dni
 
 w2i i guess except i probably wont answer because i dont talk to people lol
